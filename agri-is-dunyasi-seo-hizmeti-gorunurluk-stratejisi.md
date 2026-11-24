@@ -14,7 +14,7 @@ Bugün "SEO hizmeti" arayışında olan bir B2B alıcısı, sadece teknik bir op
 
 Pazarlama dünyasında dijital görünürlüğün önemi gün geçtikçe artıyor. Aşağıdaki video, işletmenizin nasıl daha kolay bulunabileceğine dair değerli içgörüler sunuyor. Bu kısa video, potansiyel müşterilerinizin sizi bulma yolculuğunu nasıl şekillendirebileceğinizi ve geleneksel yöntemlerin ötesinde yeni nesil görünürlük çözümlerinin ne anlama geldiğini net bir şekilde ortaya koyuyor.
 
-[![Video Anlatımı](https://img.youtube.com/vi/YRcFTeN5YBI/hqdefault.jpg)](https://youtube.com/shorts/YRcFTeN5YBI)
+[![Video Anlatımı](https://img.youtube.com/vi/Yy2s4lhILcc/hqdefault.jpg)](https://youtube.com/shorts/Yy2s4lhILcc)
 
 *   **Görünmezliğin Maliyeti:** İşletmenizin arama motorlarında ve yapay zeka yanıtlarında bulunamamasının doğrudan ticari kayıplara yol açtığını anlamak.
 *   **Müşteri Odaklı Yaklaşım:** Potansiyel müşterilerinizin sizi nasıl aradığını ve hangi kanallarda bulmayı beklediğini kavramak.
